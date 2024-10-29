@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @FriMohamed.
-- 👀 I’m interested in learning programming.
 - 🌱 I’m currently a student (talent) on Zone 01 Oujda.
 - 📫 How to reach me : moh2med.fri@gmail.com
